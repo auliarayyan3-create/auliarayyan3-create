@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me
 Saya Rayyan Aulia Rifai Putra Ingin Menjadi sebuah dari team cyber security, dan masih belajar 
 
 
