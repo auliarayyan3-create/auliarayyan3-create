@@ -1,5 +1,5 @@
-# 💫 About Me
-Saya Rayyan Aulia Rifai Putra Ingin Menjadi sebuah dari team cyber security, dan masih belajar 
+#  About Me
+Saya Rayyan Aulia Rifai Putra masih belajar tentang dunia Code  
 
 
 ## 🌐 Socials:
